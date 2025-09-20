@@ -6,6 +6,8 @@
 ## 蜂窝加速器简介：
 开业时间：2024.07.1，BGP+iepl入口性价比机场
 
+[![image](https://github.com/getizengzhi1/fengwo/blob/main/ChatGPT%20Image%202025%E5%B9%B49%E6%9C%8820%E6%97%A5%2016_06_50.png?raw=true)](https://o.fengwo.online/#/register?code=E3XlncoB)
+
 
 性价比套餐：75 年/每月 60G ，折合每月 6.25 元
 
